@@ -2,6 +2,8 @@
 
 **Pizza Tower** is an **epic**, **hyper-fast**, and **insanely fun** action platformer that brings back the nostalgic vibes of ‘90s arcade games with a modern twist. Dive into a **crazy adventure** with **Peppino Spaghetti**, a surprisingly agile and powerful Italian chef, as he dashes through wild levels, defeats bizarre enemies, and fights to save his beloved pizzeria from doom!
 
+## <a href="https://1kb.link/vRY6gc">👉 Play Pizza Tower Unblocked Games NOW 👈</a>
+
 ---
 
 ### 🎮 Game Overview
